@@ -1,1 +1,1 @@
-Δείτε το πρώτο sms location alert descr.pdf αρχείο.
+Δείτε το  sms location alert descr.pdf αρχείο.
