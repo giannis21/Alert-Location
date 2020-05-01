@@ -1,1 +1,1 @@
-Δείτε το πρώτο pdf αρχείο.
+Δείτε το πρώτο sms location alert descr.pdf αρχείο.
